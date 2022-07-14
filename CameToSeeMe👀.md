@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Jayesh Gehlot, B.Tech Graduate
+- 👀 I’m interested in Video Gaming, Cloud Computing,  
+- 🌱 I’m currently learning AWS
+- 💞️ I’m looking to collaborate on something that creates history
+- 📫 How to reach me ,E-mail = jonnygehlot01@gmail.com, Discord-"it's me jay#1387"
